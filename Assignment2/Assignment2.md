@@ -1,0 +1,1 @@
+There is no assignment2, take your time to finish the assignment1 by **Sunday October 12th**.
